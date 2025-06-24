@@ -1,0 +1,125 @@
+# Calendar
+## September
+- September 6th
+  - Webb Center rooms taken
+    - Home football game
+  - Constant Hall rooms available
+- September 7th
+  - Webb Center various events
+    - North Cafeteria is open
+  - Constant Hall main rooms taken
+- September 13th
+  - Webb Center most rooms taken for various events
+    - Isle of Wigth, Cape Charles, Virginia Beach, Portsmouth, and Chesapeake are available
+  - Constant Hall rooms limited
+    - SAT Exams
+- September 14th
+  - Webb Center mostly open
+  - Constant Hall main rooms taken
+    - SAT Exams
+- September 20th
+  - Webb Center rooms taken
+    - "FFR" 
+  - Constant Hall rooms available
+- September 21st
+  - Webb Center closed
+    - "FFR"
+  - Constant Hall main rooms taken
+- September 27th
+  - Webb Center rooms taken
+    - Home football game
+  - Constant Hall rooms available
+- September 28th
+  - Webb Center North Cafeteria open
+  - Constant Hall main rooms taken
+
+## October
+- October 4th
+  - Webb Center rooms taken
+    - Home football game
+  - Constant Hall limited availability
+    - SAT Exams
+- October 5th
+  - Webb Center North Cafeteria open
+  - Constant Hall main rooms taken
+- October 11th
+  - Webb Center most rooms taken for various events
+    - Isle of Wigth, Cape Charles, Virginia Beach, Portsmouth, and Chesapeake are available
+  - Constant Hall rooms available
+- October 12th
+  - Webb Center some rooms taken
+    - River rooms available
+    - Isle of Wigth, Cape Charles, Virginia Beach, Portsmouth, and Chesapeake are available
+  - Constant Hall main rooms taken
+- October 18th
+  - Webb Center rooms taken
+    - "Admissions"
+  - Constant Hall rooms available
+- October 19th
+  - Webb Center some rooms taken
+    - River rooms available
+    - Isle of Wigth, Cape Charles, Virginia Beach, Portsmouth, and Chesapeake are available
+  - Constant Hall main rooms taken
+- October 25th
+  - Webb Center rooms taken
+    - Home football game
+  - Constant Hall rooms available
+  - National Cyber League Fall 2025 Season Individual game is this weekend
+- October 26th
+  - Webb Center most rooms are taken
+    - Isle of Wigth, Cape Charles, Virginia Beach, Portsmouth, and Chesapeake are available
+  - Constant Hall main rooms taken
+
+## November
+- November 1st
+  - Webb Center most rooms taken for various events
+    - Isle of Wigth, Cape Charles, Virginia Beach, Portsmouth, and Chesapeake are available
+  - Constant Hall rooms available
+- November 2nd
+  - Webb Center some rooms are taken
+    - North Cafeteria available
+    - River rooms available
+    - Isle of Wigth, Cape Charles, Virginia Beach, Portsmouth, and Chesapeake are available
+  - Constant Hall main rooms taken
+- November 8th
+  - Webb Center most rooms taken for various events
+    - Isle of Wigth, Cape Charles, Virginia Beach, Portsmouth, and Chesapeake are available
+  - Constant Hall limited availability
+    - SAT Exams
+  - National Cyber League Fall 2025 Season Team game is this weekend
+- November 9th
+  - Webb Center some rooms are taken
+    - North Cafeteria available
+    - River rooms available
+    - Isle of Wigth, Cape Charles, Virginia Beach, Portsmouth, and Chesapeake are available
+  - Constant Hall main rooms taken
+- November 15th
+  - Webb Center rooms taken
+    - "Admissions"
+  - Constant Hall rooms available
+- November 16th
+  - Webb Center some rooms are taken
+    - River rooms available
+    - Isle of Wigth, Cape Charles, Virginia Beach, Portsmouth, and Chesapeake are available
+  - Constant Hall main rooms taken
+- November 22nd
+  - Webb Center mostly available
+    - North and Center Cafeteria not available
+    - River rooms (James, Lynnhaven, Potomac, York), Hampton, Newport News Isle of Wigth, Cape Charles, Virginia Beach, Portsmouth, and Chesapeake are available
+  - Constant Hall rooms available
+- November 23rd
+  - Webb Center some rooms are taken
+    - North Cafeteria available
+    - River rooms available
+    - Isle of Wigth, Cape Charles, Virginia Beach, Portsmouth, and Chesapeake are available
+  - Constant Hall main rooms taken
+- November 29th (Thanksgiving Weekend)
+  - Webb Center rooms taken
+    - Home football game
+  - Constant Hall rooms available
+- November 30th
+  - Webb Center some rooms are taken
+    - North Cafeteria available
+    - River rooms available
+    - Isle of Wigth, Cape Charles, Virginia Beach, Portsmouth, and Chesapeake are available
+  - Constant Hall main rooms taken
